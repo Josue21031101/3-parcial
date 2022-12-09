@@ -1,2 +1,1 @@
-# 3-parcial
-2 y 3 parcial calificacion
+21031101 - Josue Yamith Heredia Cherrington
